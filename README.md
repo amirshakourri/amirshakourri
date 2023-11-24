@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **amirshakouriuidesign@gmail.com**
 
-- ⚡ Fun fact **Dota2 4-5 Player**
+- ⚡ Fun fact **I'm Dota2 Player**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
